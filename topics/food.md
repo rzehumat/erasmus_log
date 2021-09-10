@@ -1,0 +1,6 @@
+- mustikka cosi aneb "borůvkový džus" -- dobré do porrige
+- žitný chleba
+- sladkovodní ryby
+- porynkarystys
+- salmiakki (apteekin, super, ...)
+- 

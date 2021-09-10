@@ -1,0 +1,5 @@
+- go late
+- "react to sexual-like jokes"
+- bragg
+- say compliments randomly -- when Finns say sth, they mean it -> if the first word you say to finnish woman will be "you're beautiful", you'll be called "kiss-ass"
+- forget to take off shoes -- finns may take off shoes even there where you won't expect it, such as in random waschküche -- since you may bring a lot of mess inside...

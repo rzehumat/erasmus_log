@@ -1,0 +1,5 @@
+- see aleksi himself
+- metal bands (Nightwish, Korpiklaani, Children of Bodom, Ensiferum, Wintersun)
+- architecture & design
+- WTF... Welcome To Finland
+- (ilmainen) ämpäri
