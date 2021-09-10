@@ -53,7 +53,7 @@ dvou -> potřebujete někoho k sobě; větší studentské zázemí bych tu neč
 studentského statusu nahrajte jakýkoli dokument týkající se Erasmu, který 
 máte tou dobou k dispozici a kde je vaše jméno a název univerzity. Na tom 
 nezáleží, oni se kdyžtak doptají. **Přihlašování je prostě klikací válka 
-(na pořadí záleží), tak se nezdržujte nebo na vás nezbyde.** Neomezujte se na 
+(na pořadí záleží), tak se nezdržujte, nebo na vás nezbyde.** Neomezujte se na 
 polohu či typ, omezte jen rozpočet (horní hranice třeba 400 nebo 500 EUR), 
 prostě berte cokoliv. **Žádosti na HOAS se podávají dvě, jedna na "furnished" 
 a jedna na "unfurnished". Nenechte se zmást, že jako exchange studenta vás 
