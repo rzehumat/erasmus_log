@@ -72,4 +72,5 @@ možnost přestěhovat se lépe bude ještě během semestru. V mojem případě
 bylo Antti Korppi. 
 4. Pokud furt nic nemáte ani v polovině srpna, shánějte klidně jen na 
 měsíc (pak seženete něco jiného). Třeba se budete často stěhovat, ale budete 
-bydlet!
+bydlet! Zkuste i méně častá místa, kde hledat dlouhodobé ubytování, třeba 
+Airbnb.

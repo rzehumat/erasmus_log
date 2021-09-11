@@ -6,4 +6,6 @@
 - play crocquet
 - play petague
 - drink coffee, beer, muustikkakeitto, finnish or estonian alcohol (estonian is cheaper)
-
+- go to metal concerts
+- visit Lapland
+- visit Lake District

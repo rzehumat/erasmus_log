@@ -6,6 +6,8 @@
 - eat as student for 2,70 EUR/meal
 - make coffee yourself
 - bring alcohol from CZ or Estonia
+- use Revolut to change money
+- buy second-hand stuff - extremly popular in Finland - mostly bikes, household stuff, furniture, clothes, ... - giving away free stuff ... (Telegram), ... buy/sell (Telegram), Kierratykeskus (=recyclation centre)
 
 ## Potentialy dangerous
 - take your Erasmus grant and invest at least half of it
