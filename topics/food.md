@@ -1,4 +1,4 @@
-- mustikka cosi aneb "borůvkový džus" -- dobré do porrige
+- mustikka cosi aneb "borůvkový džus" -- dobré do porrige; mustikkakeitto vs džus
 - žitný chleba
 - sladkovodní ryby
 - porynkarystys
