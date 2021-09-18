@@ -7,7 +7,7 @@
 - make coffee yourself
 - bring alcohol from CZ or Estonia
 - use Revolut to change money
-- buy second-hand stuff - extremly popular in Finland - mostly bikes, household stuff, furniture, clothes, ... - giving away free stuff ... (Telegram), ... buy/sell (Telegram), Kierratykeskus (=recyclation centre)
+- buy second-hand stuff - extremly popular in Finland - mostly bikes, household stuff, furniture, clothes, ... - giving away free stuff ... (Telegram), ... buy/sell (Telegram), Kierratykeskus (=recyclation centre) - they have 20 % student discount
 - fuck registration (>90 days of uninterrupted stay must be announced, costs 49 EUR) - if you interrupt it by 1-day trip (Estonia, Norway,...), it resets
 
 ## Potentialy dangerous
