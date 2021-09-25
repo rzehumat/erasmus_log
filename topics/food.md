@@ -3,4 +3,6 @@
 - sladkovodní ryby
 - porynkarystys
 - salmiakki (apteekin, super, ...)
-- 
+- jaloviina
+- to červené na G
+- alcohol and moomin juice
