@@ -5,7 +5,7 @@
 - move from AnttiKorppi to AYY -> approx 150 EUR/month saved + 80 mins/day
 - take shopping in Lidl -> sth
 - eat as student for 2,70 EUR/meal
-- make coffee yourself
+- make coffee yourself or from the Guild of Physics
 - bring alcohol from CZ or Estonia
 - use Revolut to change money
 - buy second-hand stuff - extremly popular in Finland - mostly bikes, household stuff, furniture, clothes, ... - giving away free stuff ... (Telegram), ... buy/sell (Telegram), Kierratykeskus (=recyclation centre) - they have 20 % student discount
@@ -21,4 +21,5 @@
 
 # What to get free
 - bicycle -- ask the dormitory bike shelter owner, usually someone moves and forgets it
-- 
+- knives, cutleries, food containers, torn pieces of cloth -- in Otaniemen Kierrätyskeskus
+- bike repair in Pasila with professional instructions
