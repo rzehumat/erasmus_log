@@ -12,3 +12,4 @@ vittu)
 the architect
 - Good old days, Army, Sauna
 - so many words for swamp -- Suo, Korpi (spruce trees), ...
+- ice hockey

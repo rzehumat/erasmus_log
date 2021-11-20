@@ -1,0 +1,19 @@
+- majority of young people have been to Prague
+- ice hockey
+  - Jaromir Jagr, Kladno
+  - Czech Rep. is kinda good
+  - the hockey player with the funny name like Saatana (Šatan) -- although I'm not sure if he's czech or slovak
+- you were even better before separation, weren't you? Why have you split? 
+  - I have no idea. Really I'm curious what have they been thinking about (Klaus-Mečiar)
+  - honestly, as a Czech I think it was bullshit... although, concerning Slovak political scene these days... Ok, it was reasonable and there are both benefits and negatives.
+- Czech booze -- the green narrow bottle, something between vodka and jager (Becherovka)
+- you have quite a lot of spas, don't you?
+- your language is very consonant-heavy
+  - Which one is more consonant-heavy -- Czech or Russian?
+  - (I & russian girl together): Czech
+- are you Czechia or Czech republic?
+- it's so nice you can travel by trains internationally -- in Finland there are only domestic trains and some to Russia, but it's nothing important
+- you have so cheap booze
+- I've had a great fun when I went to the shop to buy some duct tape ("paska" = shit in finnish)
+- you have been part of the Austria-Hungarian empire for quite a long time. I guess you didn't like that.
+- In the interwar period, Czechoslovakia and Finland were the only true stable parliamentary democraties. Everything else was dictatorship, monarchy or unstable.

@@ -1,0 +1,10 @@
+- abloy lock
+- divný smeták s lopatkou
+- dryer cupboard
+- coffee machines
+- saunas
+- good quality tap water
+- kitchens everywhere
+- shoe cleaner = 2 metly proti sobě
+- bicycles everywhere
+- a lot of piers so you can jump to water after sauna
