@@ -1,0 +1,14 @@
+- too much lights at night -> switch them off / reduce
+    - e.g. campus (some lights on 24x7 -- no need for that)
+    - Teekkarikylä -- 1/5 of lights would be enough
+    - Espoo, Leppavaara -- do not enlight the buildings
+- wasting heat
+    - door open for too long
+    - JMT 5 not using inner door
+    - A-bloc door open for too long & are not double
+- heat recuperation
+    - sauna
+    - computers
+    - through heat pump?
+- metro kinetic E recuperation
+- more trees for the campus
